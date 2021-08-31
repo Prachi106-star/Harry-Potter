@@ -1,0 +1,1 @@
+Harry Potter also know as the boy who lived . he survived from the dangerous crucius curse given By You-Know-who 
