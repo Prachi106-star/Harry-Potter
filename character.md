@@ -3,5 +3,5 @@ Hermonie Granger
 Ronald weasley
 Ginny weasley
 Draco malfoy
-Crabe and goyle
+Pansy parkison 
 Dumbledore
